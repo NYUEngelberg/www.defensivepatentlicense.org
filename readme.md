@@ -1,0 +1,1 @@
+This is a static archive of the Defensive Patent License site.  You can still access the site at   [https://www.defensivepatentlicense.org/](https://www.defensivepatentlicense.org/)
